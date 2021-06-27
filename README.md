@@ -1,0 +1,1 @@
+O curso esta sendo interessante, tive a oportunidade de revisar algumas coisas e aprender outras.
